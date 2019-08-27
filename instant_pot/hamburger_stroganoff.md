@@ -5,7 +5,7 @@ Prep Time: 00:10	Cook Time: 00:15	Serves: 4
 ## Ingredients
 - ½ c minced onion
 - 1 clove garlic, minced
-- 1 lb ground beef
+- 1 lb ground beef (can also use shaved steak)
 - 1 tsp salt
 - ¼ tsp pepper
 - 1 (10.5 oz) can cream of mushroom soup
